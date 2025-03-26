@@ -9,13 +9,3 @@ What I Do:
 🔗 Exploring DeFi, NFTs, and Smart Contracts
 
 🤖 Creating scripts, bots, and on-chain tools
-
-🎭 Echoing the power of permissionless innovation
-
-Let's Connect:
-
-🧠 Always open to collaborations, ideas, and discussions
-
-🕵️ Exploring the latest in crypto trends and tech
-
-If you're into Web3, crypto, or decentralization, feel free to connect! Let's build the future together. 🚀
